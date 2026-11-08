@@ -1,9 +1,13 @@
-# BYI/Info About Me
+<header>
+  <h1>BYI/Info About Me</h1>
+</header>
 <p>I'm 19, I have Borderline Personality Disorder & Autism. I do not mask and often struggle to, it's exhausting. If you prefer people with higher energy levels it's best not to interact !! /lh</p>
 <p>Transgender, Nonhuman, Unlabelled sexuality wise.</p>
 <p>I like seals, coding, horror, biology/speculative biology, character designing, and other small things.</p>
 <p>I'm a nonsharing yumeshipper, I don't really care for 'doubles' but I will likely avoid you? Nothing really against you I've just met a lot of people that have been oddly competitive with f/o's and I'd like to avoid that lol</p>
-# DNI - I know most won't read nor care this is basically just a list so people who Want to know me know what I don't like having around me
+<header>
+  <h1>DNI - I know most won't read nor care this is basically just a list so people who Want to know me know what I don't like having around me</h1>
+</header> 
 <p>Basic dni, proshippers/comshippers/darkshippers etc etc etc. T.R.A.S.H. go away</p>
 <p>Against neopronouns, xenogenders, otherhumans/otherkin</p>
 <p>Radfems</p>
