@@ -5,6 +5,13 @@
 <p>Transgender, Nonhuman, Unlabelled sexuality wise.</p>
 <p>I like seals, coding, horror, biology/speculative biology, character designing, and other small things.</p>
 <p>I'm a nonsharing yumeshipper, I don't really care for 'doubles' but I will likely avoid you? Nothing really against you I've just met a lot of people that have been oddly competitive with f/o's and I'd like to avoid that lol</p>
+<center>
+  <img src="https://blinkies.cafe/b/display/0205-pluralsystem.gif" width="183" height="25">
+  <img src="https://blinkies.cafe/b/display/0272-disabledpride.gif" width="183" height="25">
+  <img src="https://adriansblinkiecollection.neocities.org/n6.gif"width="183" height="25">
+  <img src="https://blinkie-net.neocities.org/blinkies/9/selfshipper2.gif"width="183" height="25">
+  <img src="https://64.media.tumblr.com/58192b3fc40111deb8954d98ba1dc8b9/a756bde4800e6760-f3/s250x400/c4f09b80b5910436c875a3c7fba517a92e28a314.gifv"width="183" height="25">
+</center>
 <header>
   <h1>DNI - I know most won't read nor care this is basically just a list so people who Want to know me know what I don't like having around me</h1>
 </header> 
